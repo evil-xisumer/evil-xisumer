@@ -1,5 +1,4 @@
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=evil-xisumer&color=7c2b5e&style=flat-square&label=you_are_view_number..)                                         
-##erm i dont actually know what i should put here.. check out our sites!!!!
+## erm i dont actually know what i should put here.. check out our sites!!!!
 
 ![image](https://64.media.tumblr.com/6343905f8d032790fc6a5ffa2e5d22d8/46cb18202afcbe13-ff/s100x200/ee2fafa479e007983213cc7457366c6b6e96f087.pnj)
 ![image](https://i.postimg.cc/x8Wrqhjy/Tumblr_l_242820526207214.png)
@@ -9,3 +8,5 @@
 ![image](https://i.postimg.cc/3r6QL4jr/Tumblr_l_68091973028555.gif)
 ![image](https://i.postimg.cc/PqZ2b34N/Tumblr-l-597910457593944.png)
 ![image](https://i.postimg.cc/4xhTpFHt/Tumblr-l-911377799055094.gif)
+
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=evil-xisumer&color=7c2b5e&style=flat-square&label=you_are_view_number..)
