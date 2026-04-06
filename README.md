@@ -10,3 +10,6 @@
 ![image](https://i.postimg.cc/4xhTpFHt/Tumblr-l-911377799055094.gif)
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=evil-xisumer&color=7c2b5e&style=flat-square&label=you_are_view_number..)
+
+
+whatever you do at the crossroads, keep going forward.
