@@ -6,7 +6,7 @@
 17 , it/its , intrsx masc agender , fagdyke polyamorous
     </p> 
   <p align="center">
-    d3rlord + keralis int!!!
+    d3rlords + keralis int w me!!!!!
 </p> 
 <p align="center">
 <img src="https://i.pinimg.com/736x/3a/b2/0d/3ab20dd7f346b201be756da8a5c552a6.jpg" />
