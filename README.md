@@ -2,11 +2,11 @@
 <p align="center">
 <img src="https://64.media.tumblr.com/6343905f8d032790fc6a5ffa2e5d22d8/46cb18202afcbe13-ff/s100x200/ee2fafa479e007983213cc7457366c6b6e96f087.pnj" /> <img src="https://i.postimg.cc/x8Wrqhjy/Tumblr_l_242820526207214.png" /> <img src="https://i.postimg.cc/NjwZ5Kqh/d1lfmwu-61e3b6cf-05cc-4368-8cd3-6f0c3aba6dfa.png" /> <img src="https://64.media.tumblr.com/89e0df8f1ad69008bcdb968ad6d89406/cda46de60873c5d2-26/s100x200/926e7575e0895f8fbde8b2eee868fe0ceef73710.pnj" /> <img src="https://i.postimg.cc/yNpbLDMb/tumblr-865e3cd7f4d35761135e8fde3fea06d2-a854b6bc-100.png" /> <img src="https://i.postimg.cc/PqZ2b34N/Tumblr-l-597910457593944.png" /> <img src="https://i.postimg.cc/4xhTpFHt/Tumblr-l-911377799055094.gif" />
   </p> 
+  <p align="center"> 17 , it/its , intersex + agender , fagdyke/gaybian + polyamorous
+    
+  if we've interacted feel free to add us on discord!! @evilxisumer </p> 
   <p align="center">
-17 , it/its , intrsx masc agender , fagdyke polyamorous
-    </p> 
-  <p align="center">
-    d3rlords + keralis int w me!!!!!
+    d3rlords + keralis int w us!!!!!
 </p> 
 <p align="center">
 <img src="https://i.pinimg.com/736x/3a/b2/0d/3ab20dd7f346b201be756da8a5c552a6.jpg" />
