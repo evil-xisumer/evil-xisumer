@@ -5,11 +5,16 @@
 ![image](https://i.postimg.cc/NjwZ5Kqh/d1lfmwu-61e3b6cf-05cc-4368-8cd3-6f0c3aba6dfa.png)
 ![image](https://64.media.tumblr.com/89e0df8f1ad69008bcdb968ad6d89406/cda46de60873c5d2-26/s100x200/926e7575e0895f8fbde8b2eee868fe0ceef73710.pnj)
 ![image](https://i.postimg.cc/yNpbLDMb/tumblr-865e3cd7f4d35761135e8fde3fea06d2-a854b6bc-100.png)
-![image](https://i.postimg.cc/3r6QL4jr/Tumblr_l_68091973028555.gif)
 ![image](https://i.postimg.cc/PqZ2b34N/Tumblr-l-597910457593944.png)
 ![image](https://i.postimg.cc/4xhTpFHt/Tumblr-l-911377799055094.gif)
+
+<p align="center">
+  <img src="https://i.pinimg.com/736x/3a/b2/0d/3ab20dd7f346b201be756da8a5c552a6.jpg" />
+</p> 
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=evil-xisumer&color=7c2b5e&style=flat-square&label=you_are_view_number..)
 
 
 whatever you do at the crossroads, keep going forward.
+
+![image](https://i.postimg.cc/3r6QL4jr/Tumblr_l_68091973028555.gif)
