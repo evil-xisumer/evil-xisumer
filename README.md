@@ -13,9 +13,11 @@
 <img src="https://komarev.com/ghpvc/?username=evil-xisumer&color=7c2b5e&style=flat-square&label=you_are_view_number.." />
 </p> 
 
-<p align="center">
-whatever you do at the crossroads, keep going forward.
-</p>
+
 <p align="center">
 <img src="https://i.postimg.cc/3r6QL4jr/Tumblr_l_68091973028555.gif" />
+</p> 
+
+<p align="center">
+<img src="https://i.pinimg.com/1200x/de/c0/21/dec0219fbc86a404ef984130af113b5a.jpg" />
 </p> 
