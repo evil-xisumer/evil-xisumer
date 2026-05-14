@@ -1,5 +1,9 @@
-<img src="[<img src="https://i.postimg.cc/4xhTpFHt/Tumblr-l-911377799055094.gif" width="90" height="58"/>](https://64.media.tumblr.com/16efc75e7856e2f086127f0b5fbb0a01/941a3477f6059396-9d/s1280x1920/f94cf47745eed9136834caa8d75e10c7eb05473d.pnj)"/>
+<p align="center">
+<img src="https://64.media.tumblr.com/16efc75e7856e2f086127f0b5fbb0a01/941a3477f6059396-9d/s1280x1920/f94cf47745eed9136834caa8d75e10c7eb05473d.pnj" width="1000" height="125"/>
+</p> 
+
 ## [RENTRY](https://rentry.co/evilxisumer) ☆ [ATABOOK](https://soulside.atabook.org) ☆ [STRAWPAGE](https://evilxisumer.straw.page) ☆ [PLURALKIT](https://pluralkit.xyz/s/rthwer) ☆ [PRONOUNS.CC](https://pronouns.cc/@evilxisumer)
+
 <p align="center">
 <img src="https://64.media.tumblr.com/6343905f8d032790fc6a5ffa2e5d22d8/46cb18202afcbe13-ff/s100x200/ee2fafa479e007983213cc7457366c6b6e96f087.pnj"/> <img src="https://i.postimg.cc/x8Wrqhjy/Tumblr_l_242820526207214.png" /> <img src="https://i.postimg.cc/NjwZ5Kqh/d1lfmwu-61e3b6cf-05cc-4368-8cd3-6f0c3aba6dfa.png" /> <img src="https://i.postimg.cc/YSM8wgc9/d4b39iy-b8b0acbc-eaed-4b5d-a587-6ad390b697d1.gif" width="90" height="58"/> <img src="https://i.postimg.cc/PqZ2b34N/Tumblr-l-597910457593944.png" /> <img src="https://i.postimg.cc/RFLc3fbd/Tumblr-l-295439937134953.gif" width="90" height="58"/>  <img src="https://i.postimg.cc/4xhTpFHt/Tumblr-l-911377799055094.gif" width="90" height="58"/>
   </p> 
@@ -27,5 +31,5 @@
 
 
 <p align="center">
-<img src="https://i.pinimg.com/1200x/de/c0/21/dec0219fbc86a404ef984130af113b5a.jpg" />
+<img src="https://i.pinimg.com/1200x/de/c0/21/dec0219fbc86a404ef984130af113b5a.jpg" width="1000" height="125" />
 </p> 
