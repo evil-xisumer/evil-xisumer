@@ -1,6 +1,7 @@
 <p align="center">
 <img src="https://64.media.tumblr.com/16efc75e7856e2f086127f0b5fbb0a01/941a3477f6059396-9d/s1280x1920/f94cf47745eed9136834caa8d75e10c7eb05473d.pnj" width="1000" height="125"/>
 </p> 
+<hr>
 
 ## [RENTRY](https://rentry.co/evilxisumer) ☆ [ATABOOK](https://soulside.atabook.org) ☆ [STRAWPAGE](https://evilxisumer.straw.page) ☆ [PLURALKIT](https://pluralkit.xyz/s/rthwer) ☆ [PRONOUNS.CC](https://pronouns.cc/@evilxisumer)
 
@@ -29,7 +30,7 @@
 </p> 
 
 
-
+<hr>
 <p align="center">
 <img src="https://i.pinimg.com/1200x/de/c0/21/dec0219fbc86a404ef984130af113b5a.jpg" width="1000" height="125" />
 </p> 
