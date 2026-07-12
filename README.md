@@ -26,7 +26,7 @@
 </p>
 
 <p align="center">
-<img src="https://i.postimg.cc/3r6QL4jr/Tumblr_l_68091973028555.gif" width="120" height="78"/>
+<img src="https://i.postimg.cc/3r6QL4jr/Tumblr_l_68091973028555.gif" width="120" height="70"/>
 </p> 
 
 
