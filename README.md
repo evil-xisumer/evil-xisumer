@@ -11,8 +11,9 @@
   
   <p align="center"> <a href="https://discord.gg/FPX3wHvbhK">HERMIT HILL DISCORD SERVER</a>  </p>  
   <p align="center"> 17 , it/its , intersex + agender , fagdyke/gaybian + polyamorous
-    
+
   if we've interacted feel free to add us on discord!! @evilxisumer </p> 
+  <p align="center"> <b>CURRENT OBSESSIONS: MCR, METAL FAMILY, EVIL XISUMA & EXHELS <b> </p>  
  
 <p align="center">
 <img src="https://64.media.tumblr.com/0a89d3049b258aacb6169d76193df293/88d55c54f543118b-1c/s500x750/ccf43fc685eed2d2c7aeb9f518e16ac1aab77e94.pnj" />
